@@ -31,7 +31,7 @@ Kia
 
 Bradley
 
-Stephanie
+Stephanie Richardson
 
 Madison
 
